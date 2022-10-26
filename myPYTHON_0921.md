@@ -1,1 +1,1 @@
-Hello Lao shi, I' from Philippines
+Hello Lao shi, I'm from Philppines
